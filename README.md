@@ -1,0 +1,2 @@
+# GALERIA-BRONI-FORTNITE
+Najbardziej OG bronie z FORTNITE
